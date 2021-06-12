@@ -10,6 +10,7 @@ Lets compare Saudias crime rate with Swedens, shall we?
 
 Sweden at 1.5 criminals per 100000 citizens:
 https://en.m.wikipedia.org/wiki/Crime_in_Sweden#:~:text=Many%20of%20these%20reported%20crimes,100%2C000%20inhabitants%20as%20of%202015.
+
 Saudia at 17.3 criminals per 100000 citizens:
 https://en.m.wikipedia.org/wiki/Crime_in_Sweden#:~:text=Many%20of%20these%20reported%20crimes,100%2C000%20inhabitants%20as%20of%202015.
 
