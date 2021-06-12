@@ -16,8 +16,8 @@ https://en.m.wikipedia.org/wiki/Crime_in_Sweden#:~:text=Many%20of%20these%20repo
 
 I don't know mate, muslims look really immoral here, dont they?
 Also..
-يا ابن الخرا، انت كبتت "Inbil",
- لك انت حمار تخبط بين العربي والانكليزي، لك مطي على الاقل كتبه صح؟ حتى بلويكيبيديا، اول باراكراف يكللك عقابه هو الموت، و عقاب التكفير ضد الاسلام السني هم، اول باراكراف!!!!!
+
+:انت حمار تخبط العربي و الانكليزي يا ابن الكحبة؟ يعني الكراف الاول بللنك مكتوب بيه التالي يا غبي
 
 This is literally the first paragraph on the wikipedia link, what an ignorant idiot
 
